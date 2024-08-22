@@ -1,4 +1,4 @@
-SEJAM BEM-VINDOS AO MEU PERFIL!! 
+SEJAM BEM-VINDOS AO MEU PERFIL!! ❤️❤️❤️❤️❤️
 
 Meu nome é Olivia Lozano Lima
 
